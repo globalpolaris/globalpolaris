@@ -1,4 +1,4 @@
-![Image](https://i.pinimg.com/originals/f4/a0/2b/f4a02b147b90994dbea5bab451950b26.gif)
+![Image](https://i.pinimg.com/originals/74/19/07/74190702dacafb832d8791ddbdbbaf7f.gif)
 
 <details>
   <summary><h2>Stats 🤸‍♂️</h2></summary>
